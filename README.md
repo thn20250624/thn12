@@ -11,7 +11,7 @@
 
 点击访问：<a href="https://74mao.com/">Telegram频道传送门</a>
 
-点击访问：<a href="https://cg76.pages.dev/">TikTok成人版</a>
+点击访问：<a href="(https://hl373.pages.dev/)">黑料网-今日黑料</a>
 
 点击访问：<a href="https://hj-1233.pages.dev/">海角情</a>
 
